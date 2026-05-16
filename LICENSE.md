@@ -1,4 +1,4 @@
-# 
+# Get the ultimate blur sniper bot with advanced blur sniper bot | metadata-parsing + multi-chain-support. Featuring metadata-parsing and multi-chain-support, it's the best choice
 
 
 
